@@ -1,5 +1,5 @@
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com/?color=e74c4c&size=35&center=true&vCenter=true&width=1000&lines=Oi,+Meu+nome+é+Charles+David+Winkler+😁;Tenho+19+anos;Moro+em+Ivaiporã+-+PR;Seja+Bem-vindo!+:%29)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com/?color=e74c4c&size=35&center=true&vCenter=true&width=1000&lines=Oi,+Meu+nome+é+Charles+David+Winkler+😁;Tenho+21+anos;Moro+em+Ivaiporã+-+PR;Seja+Bem-vindo!+:%29)](https://git.io/typing-svg)
 
 
  <div>
